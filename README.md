@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GayathiriMoralie
 - 👀 I’m interested in Fullstack development.
-- 🌱 I’m currently completed mys Masters in April 2025
+- 🌱 I’m currently completed my Masters in April 2025
 - 💞️ I’m looking to collaborate on Software development programs.
 - 📫 How to reach me for mail users-gayathirimoralie@gmail.com,for wp users-+91 9787015610,for linkendin users -https://www.linkedin.com/in/gayathiri-moralie-75aa18205/
   
